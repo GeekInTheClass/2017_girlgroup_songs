@@ -5,4 +5,4 @@
 
 ## 1. 대표 주자
 
-### 1-1. [레드벨벳(Red Velvet)](./rv1.gif)
+### 1-1. [레드벨벳(Red Velvet)] ![rv1](./rv1.gif)
