@@ -11,3 +11,8 @@
 
 - The Red Summer - Summer Mini Album
 - **빨간 맛**
+
+
+### 1-2. [블랙핑크(Black Pink)](http://www.melon.com/artist/timeline.htm?artistId=995169)
+
+- 지수넘조아
