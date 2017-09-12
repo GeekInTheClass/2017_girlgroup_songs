@@ -2,3 +2,7 @@
 2017년을 빛낸 걸그룹의 명곡들
 
 ![redvelvet](./Red-Velvet1.jpg)
+
+## 1. 대표 주자
+
+### 1-1. [레드벨벳(Red Velvet)](./rv1.gif)
