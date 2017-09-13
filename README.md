@@ -19,5 +19,5 @@
 
 ### 1-3. [트와이스(Twice)](http://www.melon.com/artist/timeline.htm?artistId=905701)
 
-- TT - TWICEcoaster : LANE 1
+- KNOCK KNOCK - TWICEcoaster : LANE 2
 - SIGNAL - SIGNAL
