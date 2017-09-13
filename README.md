@@ -16,3 +16,8 @@
 ### 1-2. [블랙핑크(Black Pink)](http://www.melon.com/artist/timeline.htm?artistId=995169)
 
 - 지수넘조아
+
+### 1-3. [트와이스(Twice)](http://www.melon.com/artist/timeline.htm?artistId=905701)
+
+- TT - TWICEcoaster : LANE 1
+- SIGNAL - SIGNAL
