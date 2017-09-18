@@ -10,10 +10,10 @@
 ![rv1](./rv1.gif)
 
 - The Red Summer - Summer Mini Album
-- **빨간 맛**
+- [**빨간 맛**](https://youtu.be/WyiIGEHQP8o)
 
 
 ### 1-2. [블랙핑크(Black Pink)](http://www.melon.com/artist/timeline.htm?artistId=995169)
 
 - 싱글 마지막처럼
-- **마지막처럼**
+- [**마지막처럼**](https://youtu.be/Amq-qlqbjYA)
