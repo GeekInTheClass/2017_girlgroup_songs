@@ -19,5 +19,6 @@
 - **마지막처럼**
 
 ### 1-3. [여자친구(GFRIEND)]
-
-- Fingertip
+- 여자친구 The 4th Mini Album - THE AWAKENING
+- **Fingertip**<br  />
+ [![Fingertip](http://img.youtube.com/vi/i1n_1jrUEjU/2.jpg)](https://www.youtube.com/watch?v=i1n_1jrUEjU)
